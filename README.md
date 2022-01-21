@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @idiot339 or "I" u can call me that way
+- 👀 I’m interested in python and maybe html in future
+- 🌱 I’m currently learning python
+- 📫 How to reach me - just contact 
